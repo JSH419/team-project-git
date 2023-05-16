@@ -1,2 +1,2 @@
 
-Hello Seoul!!!!!!!!!!!!!!!
+Hello Seoul!
